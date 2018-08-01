@@ -9,3 +9,4 @@ He tomado un curso de principios de bioinformática en el INMEGEN [1]
 
 Estoy medio piedra pero creo que hay unos peor que yo (jijijiji)
 
+ya no se que tranza, creo que ya borre algo
