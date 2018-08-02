@@ -12,3 +12,5 @@ Estoy medio piedra pero creo que hay unos peor que yo (jijijiji)
 ya no se que tranza, creo que ya borre algo
 Estoy totalmente perdido 12:54 1 agosto del 2018
 
+Que cosas andas escribiendo aquí??
+
